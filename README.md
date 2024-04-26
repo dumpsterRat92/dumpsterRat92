@@ -1,4 +1,4 @@
-# hi welcome
+# hi welcome🐀
 
 <p>&nbsp;<img align="center" src="https://readmestats.999857.xyz/api?username=dumpsterRat92&show_icons=true&locale=en&theme=tokyonight" alt="dumpsterRat92" /></p>
 
